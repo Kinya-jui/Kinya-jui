@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kinya-jui
 - 👀 I’m interested in ...Biostatistics
-- 🌱 I’m currently learning ...a University
+- 🌱 Working in the Ministry of Health - Kenya
 - 💞️ I’m looking to collaborate on ...Statistical Coding
 - 📫 How to reach me ...kinyanjuiquintine007@gmail.com
 
